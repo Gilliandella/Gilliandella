@@ -1,5 +1,5 @@
-### Hi there 👋
-Am Gilliandella +254704320008 
+### hello there 👋
+Am Gilliandella
 
 <!--
 **Gilliandella/Gilliandella** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
